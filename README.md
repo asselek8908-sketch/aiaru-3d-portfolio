@@ -1,1 +1,0 @@
-# aiaru-3d-portfolio
